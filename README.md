@@ -1,2 +1,2 @@
 # Roblox-EAU-Open-Gym-aimbot
-discord: moneywords
+discord: roballlegend_20081
